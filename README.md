@@ -1,0 +1,1 @@
+# finansowygps.github.io
